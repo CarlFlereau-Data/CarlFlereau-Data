@@ -46,7 +46,10 @@ Analyse complète du comportement d'achat sur le **Google Merchandise Store**, �
 ### 📫 Me contacter
 
 flereaucarl@gmail.com
+
 06 69 60 72 86
+
 https://www.linkedin.com/in/carl-fl%C3%A9reau-367655297/
+
 ---
 
